@@ -1,1 +1,1 @@
-https://test-ind-api.fyinformation.cc
+ph///:https://test-ind-api.fyinformation.cc/**/
