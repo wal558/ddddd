@@ -1,1 +1,1 @@
-ph///:https://test-ind-api.fyinformation.cc/**/
+APPEX Credit:https://test-ind-api.fyinformation.cc#10086
